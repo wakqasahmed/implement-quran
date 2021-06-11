@@ -4,6 +4,10 @@
 
 ##### Author: Abu Eesa
 
+Old Document: https://docs.google.com/document/d/14P-hEgcKACSN90a5AjhJpyKzlhobDo90gxnMEfZKIcE/edit?usp=sharing
+
+Excel Sheet for Formulation: https://docs.google.com/spreadsheets/d/1n_zGZ0vUPvXOCjkN391dTMGrI58uSoox1LDRGbd_XM0/edit?usp=sharing
+
 ## Why Implement?
 
 Quran was revealed to be recited, understood, implementing and spreading its message to the mankind. However, in this time and age, we are merely satisfied upon reciting it and not implementing it in our lives as it is required to be implemented.

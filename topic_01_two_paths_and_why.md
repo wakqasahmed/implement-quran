@@ -43,6 +43,7 @@ And say, "The truth is from your Lord, so whoever wills - let him believe; and w
 
 Or should We treat those who believe and do righteous deeds like corrupters in the land? Or should We treat those who fear Allāh like the wicked?
 — Saheeh International
+
 کیا ہم اُن لوگوں کو جو ایمان لاتے اور نیک عمل کرتے ہیں اور اُن کو جو زمین میں فساد کرنے والے ہیں یکساں  کر دیں؟ کیا متّقیوں کو ہم  فاجروں جیسا کر دیں؟ 
 — Tafheem e Quran - Syed Abu Ali Maududi
 

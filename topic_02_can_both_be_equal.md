@@ -44,3 +44,8 @@ And not equal are the good deed and the bad. Repel [evil] by that [deed] which i
 
 اور اے نبیؐ ،نیکی اور بدی یکساں نہیں ہیں۔ تم بدی کو اُس نیکی سے دفع کرو جو بہترین ہو۔ تم دیکھو گے کہ تمہارے ساتھ جس کی عداوت پڑی ہوئی تھی وہ جگری دوست بن گیا ہے۔
 — Tafheem e Quran - Syed Abu Ali Maududi
+
+#### Todos
+
+1. Understand the difference between the حزب الله and حزب الشيطن (at least, that they are two opposite forces with two different outcomes)
+2. If someone's behaviour in anyway is not good with you, do good to them (give them gifts, talk good about them in public, think good about them in private) and Allah will turn their heart and they will become your devoted friend.

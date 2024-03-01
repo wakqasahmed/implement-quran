@@ -37,13 +37,3 @@ And say, "The truth is from your Lord, so whoever wills - let him believe; and w
 اور کہہ دو کہ (لوگو) یہ قرآن تمہارے پروردگار کی طرف سے برحق ہے تو جو چاہے ایمان لائے اور جو چاہے کافر رہے۔ ہم نے ظالموں کے لئے دوزخ کی آگ تیار کر رکھی ہے جس کی قناتیں ان کو گھیر رہی ہوں گی۔ اور اگر فریاد کریں گے تو ایسے کھولتے ہوئے پانی سے ان کی دادرسی کی جائے گی (جو) پگھلے ہوئے تانبے کی طرح (گرم ہوگا اور جو) مونہوں کو بھون ڈالے گا (ان کے پینے کا) پانی بھی برا اور آرام گاہ بھی بری
 — Fatah Muhammad Jalandhari
 
-5. Quran 38:28 (سورة ص)
-
-أَمْ نَجْعَلُ ٱلَّذِينَ ءَامَنُوا۟ وَعَمِلُوا۟ ٱلصَّـٰلِحَـٰتِ كَٱلْمُفْسِدِينَ فِى ٱلْأَرْضِ أَمْ نَجْعَلُ ٱلْمُتَّقِينَ كَٱلْفُجَّارِ ٢٨
-
-Or should We treat those who believe and do righteous deeds like corrupters in the land? Or should We treat those who fear Allāh like the wicked?
-— Saheeh International
-
-کیا ہم اُن لوگوں کو جو ایمان لاتے اور نیک عمل کرتے ہیں اور اُن کو جو زمین میں فساد کرنے والے ہیں یکساں  کر دیں؟ کیا متّقیوں کو ہم  فاجروں جیسا کر دیں؟ 
-— Tafheem e Quran - Syed Abu Ali Maududi
-

@@ -73,3 +73,72 @@ Condition # 3: Don't do it to show off.
 3) Examples of the end result of the charity are given
 
 One example whose charity is accepted and two examples whose charity is nullified.
+
+
+
+April 05, 2024 (Day 17)
+
+Topic: O you who have believed...
+Follow the Etiquettes of spending in the way of Allah
+
+Quran 2:267 (سورة البقرة)
+يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوٓا۟ أَنفِقُوا۟ مِن طَيِّبَـٰتِ مَا كَسَبْتُمْ وَمِمَّآ أَخْرَجْنَا لَكُم مِّنَ ٱلْأَرْضِ ۖ وَلَا تَيَمَّمُوا۟ ٱلْخَبِيثَ مِنْهُ تُنفِقُونَ وَلَسْتُم بِـَٔاخِذِيهِ إِلَّآ أَن تُغْمِضُوا۟ فِيهِ ۚ وَٱعْلَمُوٓا۟ أَنَّ ٱللَّهَ غَنِىٌّ حَمِيدٌ ٢٦٧
+
+O you who have believed, spend from the good things which you have earned and from that which We have produced for you from the earth. And do not aim toward the defective therefrom, spending [from that] while you would not take it [yourself] except with closed eyes. And know that Allāh is Free of need and Praiseworthy.
+— Saheeh International
+
+اے ایمان والو ! اپنے کمائے ہوئے پاکیزہ مال میں سے خرچ کرو اور اس میں سے خرچ کرو جو کچھ ہم نے نکالا ہے تمہارے لیے زمین سے اور اس میں سے ردّی مال کا ارادہ نہ کرو کہ اسے خرچ کر دو ! اور تم ہرگز نہیں ہو گے اس کو لینے والے (اگر وہ شے تم کو دی جائے) الا یہ کہ چشم پوشی کر جاؤ اور خوب جان رکھو کہ اللہ تعالیٰ غنی ہے اور حمید ہے
+— بیان القرآن (ڈاکٹر اسرار احمد)
+
+Quran 2:268 (سورة البقرة)
+ٱلشَّيْطَـٰنُ يَعِدُكُمُ ٱلْفَقْرَ وَيَأْمُرُكُم بِٱلْفَحْشَآءِ ۖ وَٱللَّهُ يَعِدُكُم مَّغْفِرَةًۭ مِّنْهُ وَفَضْلًۭا ۗ وَٱللَّهُ وَٰسِعٌ عَلِيمٌۭ ٢٦٨
+
+Satan threatens you with poverty and orders you to immorality, while Allāh promises you forgiveness from Him and bounty. And Allāh is all-Encompassing and Knowing.
+— Saheeh International
+
+شیطان تمہیں فقر کا اندیشہ دلاتا ہے اور بےحیائی کے کاموں کی ترغیب دیتا ہے اور اللہ وعدہ کر رہا ہے تم سے اپنی طرف سے مغفرت کا اور فضل کا اللہ بہت وسعت والا ہے سب کچھ جاننے والا ہے
+— بیان القرآن (ڈاکٹر اسرار احمد)
+
+Quran 2:269 (سورة البقرة)
+يُؤْتِى ٱلْحِكْمَةَ مَن يَشَآءُ ۚ وَمَن يُؤْتَ ٱلْحِكْمَةَ فَقَدْ أُوتِىَ خَيْرًۭا كَثِيرًۭا ۗ وَمَا يَذَّكَّرُ إِلَّآ أُو۟لُوا۟ ٱلْأَلْبَـٰبِ ٢٦٩
+
+He gives wisdom to whom He wills, and whoever has been given wisdom has certainly been given much good. And none will remember except those of understanding.
+— Saheeh International
+
+وہ جس کو چاہتا ہے حکمت عطا کرتا ہے اور جسے حکمت دے دی گئی اسے تو خیر کثیر عطا ہوگیا اور نہیں نصیحت حاصل کرسکتے مگر وہی لوگ جو ہوش مند ہیں
+— بیان القرآن (ڈاکٹر اسرار احمد)
+
+Quran 2:270 (سورة البقرة)
+وَمَآ أَنفَقْتُم مِّن نَّفَقَةٍ أَوْ نَذَرْتُم مِّن نَّذْرٍۢ فَإِنَّ ٱللَّهَ يَعْلَمُهُۥ ۗ وَمَا لِلظَّـٰلِمِينَ مِنْ أَنصَارٍ ٢٧٠
+
+And whatever you spend of expenditures or make of vows - indeed, Allāh knows of it. And for the wrongdoers there are no helpers.
+— Saheeh International
+
+اور جو کچھ بھی تم خرچ کرتے ہو (صدقہ و خیرات دیتے ہو) یا جو بھی تم (اللہ کے نام پر) منتّ مانتے ہو تو یقیناً اللہ تعالیٰ اس سب کو جانتا ہے اور (یاد رکھو کہ) ظالموں کا کوئی مددگار نہیں ہوگا
+— بیان القرآن (ڈاکٹر اسرار احمد)
+
+Quran 2:271 (سورة البقرة)
+إِن تُبْدُوا۟ ٱلصَّدَقَـٰتِ فَنِعِمَّا هِىَ ۖ وَإِن تُخْفُوهَا وَتُؤْتُوهَا ٱلْفُقَرَآءَ فَهُوَ خَيْرٌۭ لَّكُمْ ۚ وَيُكَفِّرُ عَنكُم مِّن سَيِّـَٔاتِكُمْ ۗ وَٱللَّهُ بِمَا تَعْمَلُونَ خَبِيرٌۭ ٢٧١
+
+If you disclose your charitable expenditures, they are good; but if you conceal them and give them to the poor, it is better for you, and He will remove from you some of your misdeeds [thereby]. And Allāh, of what you do, is [fully] Aware.
+— Saheeh International
+
+اگر تم صدقات کو علانیہ دو تو یہ بھی اچھا ہے اور اگر تم انہیں چھپاؤ اور چپکے سے ضرورت مندوں کو دے دو تو یہ تمہارے لیے بہتر ہے اور اللہ تعالیٰ تم سے تمہاری برائیوں کو دور کر دے گا اور جو کچھ تم کر رہے ہو اللہ تعالیٰ اس سے باخبر ہے
+— بیان القرآن (ڈاکٹر اسرار احمد)
+
+Lessons / Todos (Day 17)
+
+1) Spend from the things that you like to receive (good stuff) and not the stuff that if you are given you will be disgusted with (e.g., very old clothes, other broken or long used household items, etc.)
+
+2) Satan scares us with poverty and orders you to do bad/evil stuff (as mentioned in point 1 and even more), while Allah promises us with barakah and offers forgiveness. So choose the later over the
+ former.
+
+3) Allah gives wisdom (the knowledge of Quran and his deen), and it is one of the best gifts to get if we are granted.
+
+4) Charity can be given (based on circumstances) openly and secretly. However, it is better to give it in secret. Allah knows everything.
+
+Benefits (وعد)
+
+1) He grants wisdom (by making you understand your enemy and the knowledge of Quran)
+
+2) He will turn you away from the misdeeds as a result of accepted charity.

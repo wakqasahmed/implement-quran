@@ -47,6 +47,7 @@ And not equal are the good deed and the bad. Repel [evil] by that [deed] which i
 
 5. Quran 47:14 (سورة محمد)
 أَفَمَن كَانَ عَلَىٰ بَيِّنَةٍۢ مِّن رَّبِّهِۦ كَمَن زُيِّنَ لَهُۥ سُوٓءُ عَمَلِهِۦ وَٱتَّبَعُوٓا۟ أَهْوَآءَهُم ١٤
+
 So is he who is on clear evidence from his Lord like him to whom the evil of his work has been made attractive and they follow their [own] desires?
 — Saheeh International
 

@@ -45,6 +45,14 @@ And not equal are the good deed and the bad. Repel [evil] by that [deed] which i
 اور اے نبیؐ ،نیکی اور بدی یکساں نہیں ہیں۔ تم بدی کو اُس نیکی سے دفع کرو جو بہترین ہو۔ تم دیکھو گے کہ تمہارے ساتھ جس کی عداوت پڑی ہوئی تھی وہ جگری دوست بن گیا ہے۔
 — Tafheem e Quran - Syed Abu Ali Maududi
 
+5. Quran 47:14 (سورة محمد)
+أَفَمَن كَانَ عَلَىٰ بَيِّنَةٍۢ مِّن رَّبِّهِۦ كَمَن زُيِّنَ لَهُۥ سُوٓءُ عَمَلِهِۦ وَٱتَّبَعُوٓا۟ أَهْوَآءَهُم ١٤
+So is he who is on clear evidence from his Lord like him to whom the evil of his work has been made attractive and they follow their [own] desires?
+— Saheeh International
+
+تو بھلا وہ شخص جو اپنے رب کی طرف سے ایک روشن دلیل پر ہے وہ اس شخص جیسا ہوجائے گا جس کے لیے اس کے ُ برے اعمال مزین ّکر دیے گئے ہیں اور انہوں نے اپنی خواہشات کی پیروی کی ہے۔
+— بیان القرآن (ڈاکٹر اسرار احمد)
+
 #### Todos
 
 1. Understand the difference between the حزب الله and حزب الشيطن (at least, that they are two opposite forces with two different outcomes)
